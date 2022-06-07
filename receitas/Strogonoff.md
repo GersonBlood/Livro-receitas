@@ -2,7 +2,8 @@
 
 ##### Ingredientes
 
-- 
+- strogonoff
+- pavê
 
 
 
